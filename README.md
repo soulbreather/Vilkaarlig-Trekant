@@ -1,1 +1,1 @@
-# Vilk-rlig-Trekant
+# Vilkårlig Trekant
